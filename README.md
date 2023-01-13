@@ -23,6 +23,6 @@ The Common ICT Programme (CICTP) is essentially a swiss army knife that will lat
 
 # Important!!!!!!!!!
 
-QTN: So I can progress to another cours after CICTP, and I wanna go AI, does that mean all CICTP will allow me to go AI related course?          
+QTN: So I can progress to another courses after CICTP, and I wanna go AI, does that mean all CICTP will allow me to go AI related course?          
 
 ANS: NO!!! This depends on the poly and you should check it out yourself, as to my knowledge (which again, maybe wrong) it seems that temasek poly and singapore poly are the only ones! Please check through every single one!!!! I also recommend you to ask more about the details!!!
